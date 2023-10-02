@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Franktasy
-- 👀 I’m interested in writing abd publishing novels
+- 👀 I’m interested in writing and publishing novels
 - 🌱 I’m currently learning counseling and socio therapy
 - 💞️ I’m looking to collaborate on making hit movies.
 - 📫 How to reach me +234 904 620 8499 Whatsapp line.
